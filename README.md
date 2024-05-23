@@ -1,0 +1,10 @@
+- 👋 ola, eu sou @CJPRIMEX
+- 👀 eu sou interessado em aprimorar meu basquete
+- 🌱 atualmente estou apredendo fudamentos para fortalecer meu jogo
+- 💞️ estou a colaborar, com instrucões
+- 📫 como chegar até mim, através do instagram
+- 😄 pronomes: nenhum
+- ⚡ Fun fact: sou muito zueiro
+- @- gosto de filmes de ficção cientifica
+- ✨ sou bom em entendimento na area esportiva  
+-# Comida favorita: bolo de cenora com cobertura de chocolate.
